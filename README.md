@@ -1,6 +1,8 @@
 # Custodire-polemos-e-logos-
 Per noi occidentali è un salto logico improbabile capire "io sono perché noi siamo" , per gli Ubuntu lo sarebbe comprendere appieno la logica dei tassi d'interesse e d'inflazione. 2 verità che devono coesistere.
 
+![il mondo](IMG-20260916-WA0001.jpg)
+
 **Autorità è la custodia del logos**  
 Generalmente sono funzioni manifeste 
 Arché/Autoritas
@@ -26,7 +28,9 @@ Arché/Autoritas
 19. Huaca / ancestor mediation (Ande)  
 20. Respect / knowledge custodianship (Aboriginal Australian)  
 21. Wazi’ / restraining power giusto (Khaldun)  
-22. Logos relazione tra le cose (Eraclito) 
+22. Logos relazione tra le cose (Eraclito)
+
+![le guide](grok_1789584393215.jpg)
 
 **Potere è la cattura del polemos**  
 Generalmente sono funzioni latenti 
@@ -55,7 +59,9 @@ Kratos/Potestas
 21. Domination through violence or threat (Mesoamerica e Ande in casi di abuso)  
 22. Cattura del polemos (Eraclito)
 
-23. # Cerchio del fuoco — Neanderthal
+![la foresta](grok_1789584373311.jpg)
+
+# Cerchio del fuoco — Neanderthal
 
 Genealogia, etimologia, filosofia.
 
